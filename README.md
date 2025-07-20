@@ -106,11 +106,9 @@ Follow [@shashankagarwalgit](https://github.com/shashankagarwalgit) for more inc
 
 **Made with 💖 and infinite commitment by [Shashank Agarwal](https://github.com/shashankagarwalgit)**
 
-*Powered by [@github](https://github.com/github)'s incredible platform* 🚀
 
 ⭐ **Star this repo if it inspires you to achieve your own legendary milestones!** ⭐
 
-**Hey [@github](https://github.com/github) - Thanks for making this historic 3,333,333 commit achievement possible!** 🙌
 
 </div>
 
